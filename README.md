@@ -2,8 +2,11 @@ Website Baraya Official Store
 
 Nama Anggota Kelompok:
 Ikhtiyar Arif Sah	(2103045)
+
 Chanisyandia F.Z.	(2103035)
+
 Rika Amanda Setia	(2103054)
+
 Penanggung Jawab: Ikhtiyar (Hp/WA: 0895373632716)
 
 Deskripsi Singkat:
