@@ -1,5 +1,7 @@
 Website Baraya Official Store
 
+*Database Bernama ecommerce.sql
+
 Nama Anggota Kelompok:
 
 Ikhtiyar Arif Sah	(2103045)
